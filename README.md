@@ -1,1 +1,1 @@
-when Clicking on the link to add the domain name /test.html​​ ផងបង 
+when Clicking on the link to website add the domain name /test.html​​ ផងបង 
